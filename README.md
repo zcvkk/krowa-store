@@ -20,4 +20,4 @@ Page presentation:
 Community Discord:
 https://discord.gg/EPuYcsAUhr
 My Instagram:
-https://www.instagram.com/ilski77/
+https://
